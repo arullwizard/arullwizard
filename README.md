@@ -1,39 +1,38 @@
                                                                 
-                                                                - 👋 Hi, I’m @arullwizard
+   - 👋 Hi, I’m @arullwizard
 
-                                     - 👀 I’m interested in creating innovative | simple | interactive web-based solutions
-
+   - 👀 I’m interested in creating innovative | simple | interactive web-based solutions
                                               
-                                              - 🌱 I’m currently learning from scratch to become full stack dev
+   - 🌱 I’m currently learning from scratch to become full stack dev
 
                              
-                             - 💞️ I’m looking to collaborate with anyone willing and like-minded peers and devs and mentors too..
+  - 💞️ I’m looking to collaborate with anyone willing and like-minded peers and devs and mentors too..
                               
                                           
-                                          -Do check my grabbed repos to understand much about my area of interest...thanks
+  -Do check my grabbed repos to understand much about my area of interest...thanks
 
                                                                   
                                                                   
-                                                                  - 📫 How to reach me ...
+                    - 📫 How to reach me ...
       
       
       
       
-                                                                        DISCORD  ::::
+                          DISCORD  ::::
       
-                                                             https://discord.gg/7eWr8Y4njE
+                   https://discord.gg/7eWr8Y4njE
       
       
       
-                                                                       TELEGRAM ::::
+                         TELEGRAM ::::
       
-                                                                https://t.me/arullwizard
+                   https://t.me/arullwizard
                                                                 
                                                                 
                                                                 
-                                                                        SKYPE    ::::
+                         SKYPE    ::::
                                                                        
-                                                                arullwizard@gmail.com
-      
+                   arullwizard@gmail.com
+  
       
           
